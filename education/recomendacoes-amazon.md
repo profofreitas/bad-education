@@ -7,6 +7,7 @@ Logo após as imagens estão os links para acessar os livros no site da Amazon.
 ![Formação Inicial de Professores:](https://m.media-amazon.com/images/I/31bcYcWLRVL.jpg)
 ![Docência, Formação e Práticas Pedagógicas: Experiências e Pesquisas](https://m.media-amazon.com/images/I/41NmyamV+tL.jpg)
 ![Educação e sua diversidade](https://m.media-amazon.com/images/I/41Y8vcu9kzL.jpg)
+![Paulo Freire um precursor](https://m.media-amazon.com/images/I/41aJGKYmj-L.jpg)
 
 * [Docência, Formação e Práticas Pedagógicas: Experiências e Pesquisas](https://www.amazon.com.br/dp/B07TN1QXH1/ref=s9_acsd_hps_bw_c2_x_5_i?pf_rd_m=A3RN7G7QC5MWSZ&pf_rd_s=merchandised-search-3&pf_rd_r=B1S94FY35SWVZSVVP70Q&pf_rd_t=101&pf_rd_p=19bd41aa-c77c-418a-b5a4-3f9dae465d00&pf_rd_i=6311441011)
 
