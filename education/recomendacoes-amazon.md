@@ -2,7 +2,7 @@
 
 ### ATUALIZADO EM Out, 08. 2020.
 
-Logo após as imagens os links para acessar os livros no site da Amazon.
+Logo após as imagens estão os links para acessar os livros no site da Amazon.
 
 ![Formação Inicial de Professores:](https://m.media-amazon.com/images/I/31bcYcWLRVL.jpg)
 ![Docência, Formação e Práticas Pedagógicas: Experiências e Pesquisas](https://m.media-amazon.com/images/I/41NmyamV+tL.jpg)
